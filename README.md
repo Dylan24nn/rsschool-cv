@@ -1,1 +1,0 @@
-https://Dylan24nn.github.io/rsschool-cv/cv
